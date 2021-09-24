@@ -1,0 +1,1 @@
+# vyatka-holod.github.io
